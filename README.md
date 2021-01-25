@@ -1,2 +1,2 @@
 # 浪潮官网
-http://www.langchao.com
+http://luba91.com/
