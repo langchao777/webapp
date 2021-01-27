@@ -1,2 +1,2 @@
 # 浪潮官网
-http://luba91.com/
+http://www.lc91h.com/
